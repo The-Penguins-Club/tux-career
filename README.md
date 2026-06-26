@@ -16,6 +16,7 @@
 | BJIT Group | [bjitgroup.com/career](https://bjitgroup.com/career) | — | — | — |
 | Therap (BD) Ltd. | [therapservices.net/careers](https://therapservices.net/careers/) | — | — | — |
 | IQVIA Bangladesh | [jobs.iqvia.com](https://jobs.iqvia.com/) | — | — | — |
+| CHEQ (A Cantaloupe Platform) | [linkedin.com/company/cheqplease](https://www.linkedin.com/company/cheqplease/jobs/) | — | — | Dhaka office |
 | Kaz Software | [kaz.com.bd/career](https://kaz.com.bd/career) | — | — | — |
 | Samsung R&D (SRBD) | [research.samsung.com/careers](https://research.samsung.com/careers) | — | — | — |
 | Selise Bangladesh | [selisegroup.com/careers](https://selisegroup.com/careers) | — | — | — |
